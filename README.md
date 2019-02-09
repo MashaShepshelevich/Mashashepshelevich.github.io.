@@ -1,1 +1,0 @@
-# Mashashepshelevich.github.io
